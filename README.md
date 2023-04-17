@@ -85,6 +85,8 @@ GeekBrains
 * [Диплом АлтГту](https://drive.google.com/drive/folders/1Q1JMQ96gAMJO7JyrHaSp_RVYPfav4Mrm?usp=sharing) 
 
 * [Резюме hh работа](https://kulunda.hh.ru/resume/60198a51ff0b9754d80039ed1f643233447542)
+
+* [Мои резюму](https://kulunda.hh.ru/applicant/resumes?hhtmFrom=settings&hhtmFromLabel=header) 
 ___
 
 # __*С Уважением Юрий Владимирович*__
